@@ -1,4 +1,4 @@
-#  
+#  steal the brainrot base smart Script is the best steal the brainrot base Script, featuring speed and infinite resources. Safe and powerful for all
 
 
 
